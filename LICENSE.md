@@ -1,4 +1,4 @@
-
+Get the ultimate GarageBand for macOS addon with GarageBand for macOS advanced Addon: version-history & social-media-export. Featuring version-history and social-media-export,
 
 
 
